@@ -1,6 +1,6 @@
-## hi, my name is Alexandra and I'm a programmer, burning out in these endless cycles of escapism.
+## hi, my name is Alexandra and i'm a programmer, burning out in these endless cycles of escapism.
 
-if I had my way, i would now be living somewhere in a hut, deep in the forest, enjoying the simple flow of life, but I am here, writing this, and I want to sleep.
+if i had my way, i would now be living somewhere in a hut, deep in the forest, enjoying the simple flow of life, but I am here, writing this, and I want to sleep.
 
 bye bye ~ ٩(-•)۶
 
